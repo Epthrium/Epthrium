@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Epthrium
 - 👀 I’m interested in art and cripto currency
-- 🌱 I got a degree in ansc and I'm also active in any filled of studies 
+- 🌱 I got a degree in ansc and I'm also active in any modern day Activism
 - 💞️ I’m looking to collaborate on in above mentioned thoughts
 - 📫 How to reach me -ephremeyalew@gmail.com
 
